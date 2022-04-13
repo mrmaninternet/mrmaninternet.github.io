@@ -1,2 +1,2 @@
 # mrmaninternet.github.io
-mmy funmy website
+what're you waiting for? go 2 it
