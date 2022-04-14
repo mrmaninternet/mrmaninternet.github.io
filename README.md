@@ -1,2 +1,2 @@
 # mrmaninternet.github.io
-what're you waiting for? go 2 it
+idk what to say. go to da website... https://mrmaninternet.github.io
